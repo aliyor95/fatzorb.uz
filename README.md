@@ -1,1 +1,0 @@
-# fatzorb.uz
